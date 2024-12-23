@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Janhavi00
 - 👀 I’m interested in Computers and technology
-- 🌱 I’m currently working as a Data Analyst
+- 🌱 I’m currently working as a Consultant : Sales Excellence
 - 📫 How to reach me: mail me on: kjanhavi.2306@gmail.com
 
 <!---
